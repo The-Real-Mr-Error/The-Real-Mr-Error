@@ -8,7 +8,7 @@ Youtube    => https://youtube.com/channel/UCS9ynJAdWURe1ZHfBbISj-w
 
 If you need solution for different ERRORS as short videos then 
 
-Instagram => https://youtube.com/channel/UCS9ynJAdWURe1ZHfBbISj-w 
+Instagram => https://www.instagram.com/the_real_mr_error/
 
 If you want to talk to me about different ERRORS then 
 
