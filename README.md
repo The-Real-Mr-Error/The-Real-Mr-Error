@@ -10,4 +10,8 @@ If you need solution for different ERRORS as short videos then
 
 Instagram => https://youtube.com/channel/UCS9ynJAdWURe1ZHfBbISj-w 
 
+If you want to talk to me about different ERRORS then 
+
+Twitter => https://twitter.com/MRERROR28644937
+
 Every ERROR has a SOLUTION :)
